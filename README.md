@@ -1,0 +1,2 @@
+# Alpha-Femme-Keto-Genix
+This is a keto based eating routine and as per individuals behind it, it triggers ketosis in the body. When this state is accomplished, the body will go to its own fats so as to deliver the genuinely necessary vitality. Alpha Femme Keto Genix  Furthermore, that flood in vitality levels prompts further breakdown of fats in the body  Click here https://www.marketwatch.com/press-release/alpha-femme-keto-genix-in-canada-uk--latest-report-testimonials-2020-05-06
